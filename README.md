@@ -1,5 +1,6 @@
-Interview invitation - Linguistic Diversity and Digitalization:     
+[Interview invitation - Linguistic Diversity and Digitalization](LingDivCan/invitation_interviews_linguistic-diversity-digitalization.pdf)   
 
+[Data protection information](data-protection-information_interviews_linguistic-diversity-digitalization.pdf)      
 
 Contact:  
 Juliane Benson   
